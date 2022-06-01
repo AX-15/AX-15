@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AX-15
-- 👀 I’m interested in anything
+- 👀 I’m interested in everything
 - 🌱 I’m currently learning code and software design
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me @ alex@nevard.net
